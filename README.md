@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://pi01-1.pages.dev/">必看大瓜/a>
+点击访问：<a href="https://pi01-1.pages.dev/">必看大瓜</a>
 
 点击访问：<a href="https://pi25.pages.dev/">17吃瓜</a>
 
